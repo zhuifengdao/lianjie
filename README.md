@@ -1,2 +1,2 @@
 # 一个烂好人
-域名更新地区
+TG群组https://t.me/joinchat/NI0O41WWZivcKxzajapvmg
