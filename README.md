@@ -12,4 +12,5 @@ TG群组连接https://t.me/joinchat/NI0O41WWZivcKxzajapvmg
 安卓免流客户端下载地址https://www.lanzous.com/i8ge2ni 如果需要免流，请加Q群834089512查看使用教程
 TG群组https://t.me/joinchat/NI0O41WWZivcKxzajapvmg
 
-安卓免流客户端下载地址https://www.lanzous.com/i8jvsvc
+安卓免流客户端下载地址https://www.lanzous.com/i8km5sd
+
